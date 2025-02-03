@@ -1,8 +1,6 @@
 # 新专推荐 - 时隔五年的惊喜
 
-{{&lt; spotify album 37asoWjHlM134Da94j5kAc &gt;}}
 
-## 介绍
 
 ## 引言
 
